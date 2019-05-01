@@ -1,2 +1,3 @@
 # A-R-MANIK
-a amazon product sale &amp; home delivery Support center 
+WED DEVELOPER
+Hi.... this "A R MANIK" Software Engineer & Online Money Maker 😃 If U Earn Money Online Knock me😍 & Develop your Online career ❤A R MANIK❤
